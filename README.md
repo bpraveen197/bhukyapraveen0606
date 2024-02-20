@@ -1,4 +1,4 @@
-I'm Bhukya Praveen from India,currently live in Suryapet.I'm a second year graduate student studying undergraduate in Cloud Computing and Edge Computing at KL University,Vijayawada.
+I'm Bhukya Praveen from India,currently live in Suryapet.I'm a Third year graduate student studying undergraduate in Cloud Computing and Edge Computing at KL University,Vijayawada.
 
 - 👋 Hi
 - 👀 I’m addicted to learning and growing every day
